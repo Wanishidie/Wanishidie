@@ -19,4 +19,5 @@ Let's get in touch!
 - 📫 How to reach me: [my email](mailto:rndlindi@gmail.com)
 - 👔 Twitter: [twitter: @Wanishidie](https://x.com/Wanishidie)
 - 📂 Discord: [my discord profile](https://discord.com/users/846684216279826442)
+- 🌴 Linktree: [my linktree](https://linktr.ee/Wanishidie)
 
